@@ -1,1 +1,0 @@
-# 1st_tribute_for_loki_laufeyson
